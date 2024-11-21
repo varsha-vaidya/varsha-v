@@ -9,3 +9,7 @@
   - Solving real-world problems through analytics and innovation.  
 ## 💼 I'm Looking For  
 An opportunity to leverage my analytical expertise to drive impactful business decisions. If you're searching for a data enthusiast who thrives on challenges and loves working with data, let’s connect!  
+### 📫 Let's Connect!  
+- **LinkedIn**: [www.linkedin.com/in/varsha-vaidya-37214915a]
+- **Email**: [vrvaidya97@gmail.com] 
+ 
